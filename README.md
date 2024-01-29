@@ -1,1 +1,0 @@
-# spanda-bootcamp
